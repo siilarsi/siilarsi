@@ -1,5 +1,6 @@
-### Hi there 👋
+### I'm Silas who are you? 👋
 
+![hits close to home](https://i.redd.it/7tqdz8zkjk191.jpg)
 <!--
 **siilarsi/siilarsi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
